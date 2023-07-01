@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @robin-hireasidekick
+- 👀 I’m interested in freelancing projects
+- 📫 How to reach me robin.grell@hireasidekick.dev
